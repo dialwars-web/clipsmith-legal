@@ -1,0 +1,1 @@
+# clipsmith-legal
